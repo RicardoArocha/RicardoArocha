@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @RicardoArocha and I'm a 20 year old student.
+- 👀 I’m interested in coding, project management, investments and self-development.
+- 🌱 I’m currently learning IT and Business Management at ISCTE.
+- 💞️ I’m looking to collaborate on new and exciting projects.
+- 📫 How to reach me: https://www.linkedin.com/in/ricardopepearocha/ or ricardopepearocha@gmail.com
